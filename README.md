@@ -6,8 +6,6 @@
 
 ## 🔗 Официальный сайт и рабочее зеркало
 
-| Ресурс |
-
 | **Официальный сайт ПИНКО:** [**pinco-off.com**](https://clickprofitgo.com/GtO4uUhr/?subId1=333) ✅
 
 | **Рабочее зеркало ПИНКО** | [**pinco-zerkalo.com**](https://clickprofitgo.com/WItM91le/?subId1=Sng) ✅
